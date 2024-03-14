@@ -1,2 +1,0 @@
-# university_assignment
-
